@@ -1,4 +1,4 @@
-Estudié economía en la Universidad Nacional del Callao (Perú) y actualmente me encuentro estudiando una maestría en economía en la Universidad de Buenos Aires (Buenos Aires, Argentina). Me desempeño a la par como analista de investigación en el 
+Estudié economía en la Universidad Nacional del Callao (Perú) y actualmente me encuentro estudiando una maestría en economía en la Universidad de Buenos Aires (Argentina). Me desempeño a la par como analista de investigación en el 
 Centro para el Análisis de Políticas Públicas en Educación Superior (CAPPES).
 
 Mis intereses están ligados a la economía de la educación, desarrollo económico, economía política y microeconomía aplicada. Inicié académica/laboralmente en temas de regulación de servicios públicos en estudios económicos de OSITRAN, luego tuve un breve paso por 
